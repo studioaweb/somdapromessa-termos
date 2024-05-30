@@ -6,7 +6,7 @@ Ao baixar e usar o aplicativo Som da Promessa, você concorda em cumprir e ser v
 Som da Promessa é um aplicativo de rádio que oferece transmissão gratuita de música gospel evangélica. O serviço é oferecido sem custos e não requer assinatura.
 
 3. Direitos de Propriedade Intelectual
-Todo o conteúdo fornecido no aplicativo é de propriedade de CONVENCAO REGIONAL NOROESTE PAULISTA DAS IGREJAS ADVENTISTA DA PROMESSAou de seus licenciadores e é protegido pelas leis de direitos autorais brasileiras e internacionais.
+Todo o conteúdo fornecido no aplicativo é de propriedade de CONVENCAO REGIONAL NOROESTE PAULISTA DAS IGREJAS ADVENTISTA DA PROMESSA ou de seus licenciadores e é protegido pelas leis de direitos autorais brasileiras e internacionais.
 
 4. Uso Aceitável
 Você concorda em não usar o aplicativo de maneira que possa danificar, desabilitar, sobrecarregar ou prejudicar o serviço, ou interferir no uso e aproveitamento do serviço por outros usuários.
